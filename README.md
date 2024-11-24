@@ -3,7 +3,8 @@
 - 🌱 I’m currently Looking for jobs here in Dubai
 - 📫 How to reach me ... Asadk7732@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+
+
 **Website I created**
 https://afiqpharma.com/home
 **Linkedin Post Contents links** - 
